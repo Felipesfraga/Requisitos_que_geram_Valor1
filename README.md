@@ -1,0 +1,1 @@
+# Requisitos_que_geram_Valor1
